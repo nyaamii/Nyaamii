@@ -7,4 +7,5 @@ hoards of random stuff i *stole* >:D !! /p
 
 wow that glitter up there looks amazing.. anyways ..  
 ︶︶ . im melanie or iko whatever..... ![](https://camo.githubusercontent.com/52e3d44c1c490640a78c7263ea7e37d801cce0a374e233da462dddec21079713/68747470733a2f2f692e6962622e636f2f66597844676331542f77696e67322e676966) 
-she / hyr / him . cis male though !! 
+she / hyr / him . cis male though !!  ︶︶ . *18* oke? im an *adult.*
+            
