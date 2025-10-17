@@ -1,4 +1,5 @@
-## Hi there 👋
+## Introduction! 🍌
+i finally found out how to make a readme..
 
 <!--
 **nyaamii/Nyaamii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
