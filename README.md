@@ -1,4 +1,4 @@
-![my stalkers .. 🍀](https://visitor-badge.laobi.icu/badge?page_id=nyaamii.repo-name)
+![my stalkers .. 🍀](https://visitor-badge.laobi.icu/badge?page_id=nyaamii.repo-name) idk how ro change the namw.. som1 help <img src="https://files.catbox.moe/mjc8dv.webp" style="width:25px;"/> 
 
 
 
@@ -9,7 +9,7 @@
 wow that scenery looks pretty ..  anyways!
  . im melanie or iko whatever..... ![](https://camo.githubusercontent.com/52e3d44c1c490640a78c7263ea7e37d801cce0a374e233da462dddec21079713/68747470733a2f2f692e6962622e636f2f66597844676331542f77696e67322e676966) she / hyr / him . org female though !!  ︶︶ . *16-18* oke? read sp for reasons . <img src="https://camo.githubusercontent.com/f38d1db15540bd0b7c641441986f5c6b486ea79e8d7f4918af74364259b62f10/68747470733a2f2f692e6962622e636f2f7057527271666d2f494d472d373936332e676966" style="width:100px;"/>
           
-i am **VERY** selective with my friends. <img src="https://camo.githubusercontent.com/fa89306406e1fec2c09b49e939da2166168dac1759c226155ff0b7b0fb36dbca/68747470733a2f2f64697669646572732e6372642e636f2f6173736574732f696d616765732f67616c6c65727930342f35623730383436612e706e673f763d30356433336639312e706e67" style="width:100px;"/> i have also *BPD, ASD, and general anxiety.* okey? . i often call my safes names : *dear , honey , sweetie*
+i am **VERY** selective with my friends. <img src="https://files.catbox.moe/lxydff.gif" style="width:25px;"/>  i have also *BPD, ASD, and general anxiety.* okey? . i often call my safes names : *dear , honey , sweetie* <img src="https://files.catbox.moe/c43kw6.webp" style="width:25px;"/> 
              while talking to me , do not say anything such as saying MY ftk is yours too. " I LOVE -- BC THEIR MY FTK!" please iwc.
              ![](https://camo.githubusercontent.com/fd7954a46fb77d8b462b9b2cd48bbb92d71622e17833f1fb825f45333cbd8655/68747470733a2f2f66696c65732e636174626f782e6d6f652f696a637471332e676966)  ⟡ anywho my ftks are : Madoka, Enid, Bobette, Shelly, Natsuki, Vee![](https://64.media.tumblr.com/d6d528b821d8b057c682c0fcfd30a2cf/06708061b46474d5-e2/s75x75_c1/6bfed6724dfbba8b00197a406aa0c2220fc1589b.gif). ,Gigi, Melanie, Astro and split . ![](https://camo.githubusercontent.com/f83e2f3f91d71e139ee062fb78547517b19d668a7cf20981e68c18651f1991e4/68747470733a2f2f692e706f7374696d672e63632f70724654464a5a6e2f616e67656c2e676966)  iwec if your a double . ![](https://camo.githubusercontent.com/3887da74ef609e7b8ffc1826d796b5d9c3f5cca4e404cc76040e9df6c2d658ab/68747470733a2f2f692e706f7374696d672e63632f4e304253515779582f737765657469652e676966) 
 
@@ -20,7 +20,7 @@ i am **VERY** selective with my friends. <img src="https://camo.githubuserconten
 LOOOK FIRST CALLOUT LIST IM INN ^^ [Call-out list!! ( not made by me )](https://rentry.co/ALWAYSBACKBABY)
 
 
-links! [strawpage💗](https://1nt3rn3t2y2tem.straw.page/) [agere acc](https://github.com/agefez) mor 2b added!
+links! [strawpage💗](https://1nt3rn3t2y2tem.straw.page/) [agere acc](https://github.com/agefez) [pixels!!🍀](https://rentry.co/lesbiianpix02)more soon
 
 
 ## More Stamps + Buttons i stole from Azure , or just ext :3
