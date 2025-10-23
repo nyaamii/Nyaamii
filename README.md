@@ -20,7 +20,7 @@ i am **VERY** selective with my friends. <img src="https://files.catbox.moe/lxyd
 LOOOK FIRST CALLOUT LIST IM INN ^^ [Call-out list!! ( not made by me )](https://rentry.co/ALWAYSBACKBABY)
 
 
-links! sp in the making!  [agere acc](https://github.com/agefez) [pixels!!🍀](https://rentry.co/lesbiianpix02)more soon
+links! [SEND ME GIMMICKS!!](p1nkpunk.straw.page) [agere acc](https://github.com/agefez) [pixels!!🍀](https://rentry.co/lesbiianpix02)more soon
 
 
 ## More Stamps + Buttons i stole from Azure , or just ext :3
