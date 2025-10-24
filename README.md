@@ -17,8 +17,8 @@ i am **VERY** selective with my friends. <img src="https://files.catbox.moe/lxyd
              
  , anywho . you may have seen me in **PFEZ** , or **UFEZ** ![](https://camo.githubusercontent.com/8724708f77575e91e95650d6660dcb58ad7998b119024bf4b5f246f11c279605/68747470733a2f2f692e706f7374696d672e63632f6e723259595046792f646f6c6c2e676966) . but both ponies are a entirely different meaning / mood. EX: **PFEZ**, pink fez, often *happy* *energetic* ready to talk! INT ![](https://camo.githubusercontent.com/a1108cb0af6c902ffd365d611196385efadb6a938c858a49a6c0b1082640cc62/68747470733a2f2f66696c65732e636174626f782e6d6f652f6763753666352e676966)  . unlike **UFEZ**, used when *uncomfortable, or unwell.* IWEC - **uncomfy.** I use it to express - " Thats my fictionkin., please stop saying / doing that. " ![](https://camo.githubusercontent.com/583931cf93da84fb752a85e94c3a67a4c64c016e1a8cafd60188bc59a25d222a/68747470733a2f2f692e706f7374696d672e63632f70723832344a66322f6a65616c6f75732e676966) when using UFEZ, please . only *safes / close friends* int. some will often be named in my bubble chat thingy on my git! 💫 
               <img src="https://media.tenor.com/-9sP1rB_lIoAAAAj/blinkies.gif" style="width:25px;"/> AGEFEZ explains itself💗
-LOOOK FIRST CALLOUT LIST IM INN ^^ [Call-out list!! ( not made by me )](https://rentry.co/ALWAYSBACKBABY)
 
+ CALLOUT list TAKEN DOWN!! find meulin-nyah if want to see.. Cause i wont be showing it due to my kit panicking n whatsoever!! 🕸️🕸️  
 
 links! [SEND ME GIMMICKS!!](https://p1nkpunk.straw.page/) [agere acc](https://github.com/agefez) [pixels!!🍀](https://rentry.co/lesbiianpix02)more soon
 
