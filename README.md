@@ -1,3 +1,14 @@
+<p align="center"><img src="https://media1.tenor.com/m/8HnNU4DzQDwAAAAd/stranger-things-byler.gif" style="width:800px;"/></p>
+
+
+![](https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif)![](https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif)![](https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif)![](https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif)
+
+
+
+
+
+
+
 ![my stalkers .. 🍀](https://visitor-badge.laobi.icu/badge?page_id=nyaamii.repo-name) idk how ro change the namw.. som1 help <img src="https://files.catbox.moe/mjc8dv.webp" style="width:25px;"/> 
 
 
