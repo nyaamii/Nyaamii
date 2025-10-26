@@ -1,7 +1,23 @@
 <p align="center"><img src="https://media1.tenor.com/m/8HnNU4DzQDwAAAAd/stranger-things-byler.gif" style="width:800px;"/></p>
 
 
-![](https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif)![](https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif)![](https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif)![](https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif)
+
+
+
+
+
+
+
+
+
+<img src="https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif" style="width:1000px;"/>
+
+
+
+
+
+
+
 
 
 
