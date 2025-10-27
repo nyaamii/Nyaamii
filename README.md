@@ -3,7 +3,12 @@
 
 
 
-## <p align="center"> Me and [My gf](https://github.com/willbylerr)<3</p>
+## <p align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Comic+Sans+MS&size=22&duration=3500&pause=800&color=FF69B4&center=true&vCenter=true&width=1000&lines=hello!;this+is+me+and+my+girlfriend+okey.;I+love+her+🐾" alt="Typing SVG" />
+</p>
+
+
+
 
 
 
