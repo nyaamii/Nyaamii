@@ -35,7 +35,7 @@
 
 
 wow that scenery looks pretty ..  anyways!
- . im melanie or iko whatever..... ![] (https://camo.githubusercontent.com/52e3d44c1c490640a78c7263ea7e37d801cce0a374e233da462dddec21079713/68747470733a2f2f692e6962622e636f2f66597844676331542f77696e67322e676966) she / hyr / him . org female though !!  ︶︶ . *16. ok? 16.* im 16 im a **MINOR**  <img src="https://camo.githubusercontent.com/f38d1db15540bd0b7c641441986f5c6b486ea79e8d7f4918af74364259b62f10/68747470733a2f2f692e6962622e636f2f7057527271666d2f494d472d373936332e676966" style="width:100px;"/>
+ . im melanie or iko whatever..... ![](https://camo.githubusercontent.com/52e3d44c1c490640a78c7263ea7e37d801cce0a374e233da462dddec21079713/68747470733a2f2f692e6962622e636f2f66597844676331542f77696e67322e676966) she / hyr / him . org female though !!  ︶︶ . *16. ok? 16.* im 16 im a **MINOR**  <img src="https://camo.githubusercontent.com/f38d1db15540bd0b7c641441986f5c6b486ea79e8d7f4918af74364259b62f10/68747470733a2f2f692e6962622e636f2f7057527271666d2f494d472d373936332e676966" style="width:100px;"/>
           
 i am **VERY** selective with my friends. <img src="https://files.catbox.moe/lxydff.gif" style="width:25px;"/>  i have also *BPD, ASD, and general anxiety.* okey? . i often call my safes names : *dear , honey , sweetie* <img src="https://files.catbox.moe/c43kw6.webp" style="width:25px;"/> 
              while talking to me , do not say anything such as saying MY ftk is yours too. " I LOVE -- BC THEIR MY FTK!" please iwc.
