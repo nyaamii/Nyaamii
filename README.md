@@ -3,7 +3,7 @@
 
 
 
-## <p align="center"> Me and Mimi <3</p>
+## <p align="center"> Me and [My gf](https://github.com/willbylerr)<3</p>
 
 
 
