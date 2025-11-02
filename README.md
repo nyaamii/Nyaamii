@@ -11,8 +11,29 @@
 <p align="center" >Call me madoka/nyaamii, i am 6(teen) with 𝑩𝑷𝑫 and 𝑶𝑪𝑫 ⋆.˚</p> 
 
 
-Any questions? Visit [here!](p1nkpunk.straw.page)
+<p align="center"> i also tend to age-regress or pet-regress when stresses or randomly, so if you get umcomfy proceed to dni when there's [agefez](github.com/agefez) linked. 
 
 
-⋆.˚ This is so obviously a wip, more soon xoxo
+<p align="center"> anyways, Im socially awkward but if you get to know me I'm cool guys I swear!! Feel free to always C+H or W2I for anything! 
+
+
+
+  
+<p align="center">Any questions? Visit [here!](p1nkpunk.straw.page)
+
+
+
+## <p align="center"> [![Typing SVG](https://readme-typing-svg.demolab.com?size=30&duration=2500&color=FF69B4&center=true&vCenter=true&lines=Fandoms!)](https://git.io/typing-svg)
+ 
+
+<p align="center"> Dandy's world, 
+Under tale, 
+Cardcaptor Sakura, 
+Madoka Magica, 
+My melody & Kuromi, 
+MHA, 
+Dangonranpa, 
+Crk, 
+Octonauts, 
+Mlp! 
 
