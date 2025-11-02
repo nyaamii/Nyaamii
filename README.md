@@ -1,68 +1,7 @@
-<p align="center"><img src="https://media1.tenor.com/m/8HnNU4DzQDwAAAAd/stranger-things-byler.gif" style="width:800px;"/></p>
+<p align="center">
+  <img src="https://64.media.tumblr.com/59c49948971923b6bf0ddec1122a253d/7563c205d7619f44-2f/s400x600/5bd5bc0a932b0fef5e17999378d9b38ca9a3db95.gifv" alt="GIF description" />
+<img src="https://files.catbox.moe/wikcwm.webp" alt="Divider" width="900"/>
 
+## <p align="center" >Rmking stufff
 
-
-
-## <p align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?font=Comic+Sans+MS&size=22&duration=3500&pause=800&color=FF69B4&center=true&vCenter=true&width=1000&lines=hello!;this+is+me+and+my+girlfriend+okey.;I+love+her+🐾" alt="Typing SVG" />
-</p>
-
-
-
-
-
-
-
-
-
-
-<img src="https://media1.tenor.com/m/VTJqEYl5xwQAAAAd/hazard-hazard-tape.gif" style="width:1000px;"/>
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-![my stalkers .. 🍀](https://visitor-badge.laobi.icu/badge?page_id=nyaamii.repo-name) idk how ro change the namw.. som1 help <img src="https://files.catbox.moe/mjc8dv.webp" style="width:25px;"/> 
-
-
-
-
-![](https://media1.tenor.com/m/FZfIsoOmFPoAAAAd/blinkies-nyan-cat.gif) ![](https://media1.tenor.com/m/byIRjwHEYQkAAAAd/blinkie-blinkies.gif) ![](https://media1.tenor.com/m/W88gaO5uZa0AAAAd/online-friends.gif) ![](https://media1.tenor.com/m/BiIkpObRwEcAAAAd/myclematis-twilight-sparkle.gif) ![](https://media1.tenor.com/m/byIRjwHEYQkAAAAd/blinkie-blinkies.gif) ![](https://media.tenor.com/fxUVFIwu2i4AAAAM/pink-blinkie.gif) <img src="https://media1.tenor.com/m/J4k9p31mBu0AAAAd/dandys-world-blinkies.gif" style="width:200px;"/> <img src="https://media1.tenor.com/m/gR43KEVJnIwAAAAd/sending-hugs-sending-love.gif" style="width:200px;"/> <img src="https://media1.tenor.com/m/dLepvMX0J0IAAAAd/blinkies.gif" style="width:200px;"/> <img src="https://media1.tenor.com/m/MleinF5dciwAAAAd/blinkies.gif" style="width:200px;"/> <img src="https://media1.tenor.com/m/K2QqGzRfYGgAAAAd/blinkies-blinkie.gif" style="width:200px;"/> <img src="https://media1.tenor.com/m/GwKbuyD0P4wAAAAd/blinkies.gif" style="width:200px;"/> <img src="https://media1.tenor.com/m/7MGO8KB1kO0AAAAd/pan-pride-blinkie.gif" style="width:200px;"/> 
-
-
-wow that scenery looks pretty ..  anyways!
- . im melanie or iko whatever..... ![](https://camo.githubusercontent.com/52e3d44c1c490640a78c7263ea7e37d801cce0a374e233da462dddec21079713/68747470733a2f2f692e6962622e636f2f66597844676331542f77696e67322e676966) she / hyr / him . org female though !!  ︶︶ . *16. ok? 16.* im 16 im a **MINOR**  <img src="https://camo.githubusercontent.com/f38d1db15540bd0b7c641441986f5c6b486ea79e8d7f4918af74364259b62f10/68747470733a2f2f692e6962622e636f2f7057527271666d2f494d472d373936332e676966" style="width:100px;"/>
-          
-i am **VERY** selective with my friends. <img src="https://files.catbox.moe/lxydff.gif" style="width:25px;"/>  i have also *BPD, ASD, and general anxiety.* okey? . i often call my safes names : *dear , honey , sweetie* <img src="https://files.catbox.moe/c43kw6.webp" style="width:25px;"/> 
-             while talking to me , do not say anything such as saying MY ftk is yours too. " I LOVE -- BC THEIR MY FTK!" please iwc.
-             ![](https://camo.githubusercontent.com/fd7954a46fb77d8b462b9b2cd48bbb92d71622e17833f1fb825f45333cbd8655/68747470733a2f2f66696c65732e636174626f782e6d6f652f696a637471332e676966)  ⟡ anywho my ftks are : Madoka, Wednesday , Bobette, Shelly, Natsuki, Vee![](https://64.media.tumblr.com/d6d528b821d8b057c682c0fcfd30a2cf/06708061b46474d5-e2/s75x75_c1/6bfed6724dfbba8b00197a406aa0c2220fc1589b.gif). ,Gigi, Melanie, Astro anplit . ![](https://camo.githubusercontent.com/f83e2f3f91d71e139ee062fb78547517b19d668a7cf20981e68c18651f1991e4/68747470733a2f2f692e706f7374696d672e63632f70724654464a5a6e2f616e67656c2e676966)  iwec if your a double . ![](https://camo.githubusercontent.com/3887da74ef609e7b8ffc1826d796b5d9c3f5cca4e404cc76040e9df6c2d658ab/68747470733a2f2f692e706f7374696d672e63632f4e304253515779582f737765657469652e676966) 
-
-
-<img src="https://cdn.discordapp.com/emojis/1113878510201733141.webp?size=40&quality=lossless" style="width:25px;"/> <img src="https://cdn.discordapp.com/emojis/1113884165209870418.webp?size=40&quality=lossless" style="width:25px;"/> <img src="https://cdn.discordapp.com/emojis/1113894337475006494.webp?size=40&quality=lossless" style="width:25px;"/>              
-
-
-             
- , anywho . you may have seen me in **PFEZ** , or **UFEZ** ![](https://camo.githubusercontent.com/8724708f77575e91e95650d6660dcb58ad7998b119024bf4b5f246f11c279605/68747470733a2f2f692e706f7374696d672e63632f6e723259595046792f646f6c6c2e676966) . but both ponies are a entirely different meaning / mood. EX: **PFEZ**, pink fez, often *happy* *energetic* ready to talk! INT ![](https://camo.githubusercontent.com/a1108cb0af6c902ffd365d611196385efadb6a938c858a49a6c0b1082640cc62/68747470733a2f2f66696c65732e636174626f782e6d6f652f6763753666352e676966)  . unlike **UFEZ**, used when *uncomfortable, or unwell.* IWEC - **uncomfy.** I use it to express - " Thats my fictionkin., please stop saying / doing that. " ![](https://camo.githubusercontent.com/583931cf93da84fb752a85e94c3a67a4c64c016e1a8cafd60188bc59a25d222a/68747470733a2f2f692e706f7374696d672e63632f70723832344a66322f6a65616c6f75732e676966) when using UFEZ, please . only *safes / close friends* int. some will often be named in my bubble chat thingy on my git! 💫 
-              <img src="https://media.tenor.com/-9sP1rB_lIoAAAAj/blinkies.gif" style="width:25px;"/> AGEFEZ explains itself💗
-
- CALLOUT list TAKEN DOWN!! find meulin-nyah if want to see.. Cause i wont be showing it due to my kit panicking n whatsoever!! 🕸️🕸️  
-
-links! [SEND ME GIMMICKS!!](https://p1nkpunk.straw.page/) [agere acc](https://github.com/agefez) [pixels!!🍀](https://rentry.co/lesbiianpix02)more soon
-
-
-SAFES :[MY SILLY BABY KITTY](https://github.com/bylercoded)     [SIMON?? OR HENRIKSSON!! !](https://github.com/HENRlKSSON)/                 [SPOOFY!!](https://github.com/spookyxfloofyxhasx350xgenders) 
-
-
-## More Stamps + Buttons i stole from Azure , or just ext :3
-![](https://camo.githubusercontent.com/8996b0aa37f556100ae1cd25eaf6b4a51a50e1d7aafa986e94eeb9eecc78f710/68747470733a2f2f692e706f7374696d672e63632f36716b6267534a792f627261742e676966) ![](https://private-user-images.githubusercontent.com/206425529/483776799-175d2322-532b-4b08-83a2-22737ba8e645.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjA3MTYyMjgsIm5iZiI6MTc2MDcxNTkyOCwicGF0aCI6Ii8yMDY0MjU1MjkvNDgzNzc2Nzk5LTE3NWQyMzIyLTUzMmItNGIwOC04M2EyLTIyNzM3YmE4ZTY0NS5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMDE3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTAxN1QxNTQ1MjhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0yZGI4ODI1OTY4ZGEwZDU3OThmMTU2MTljZmU4YzRhNTMxMzE4ZTViMjJlMGZjZDVmOTdjYTFhZjU5YWQ2ZTVhJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.BW9KW9r0CGjoFiOjQtBc0Gwg1P12daQiliq1JTXsR5E) ![](https://private-user-images.githubusercontent.com/206425529/483777461-26c4c162-331b-445b-83ea-886a14c512d3.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjA3MTYyMjgsIm5iZiI6MTc2MDcxNTkyOCwicGF0aCI6Ii8yMDY0MjU1MjkvNDgzNzc3NDYxLTI2YzRjMTYyLTMzMWItNDQ1Yi04M2VhLTg4NmExNGM1MTJkMy5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMDE3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTAxN1QxNTQ1MjhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT02NDJkNjY3OGNhYWJiYmE1ODljYjJjYTZmNDJlNjFhNGMxMjI0M2JkMTEwNWY0NGMwNzEzMWMzMGYzN2U2ZTBjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.T-iuUpH7Wc9mZNgRaybrlgsBnxpAkem64ucNKfmb4dc) ![](https://private-user-images.githubusercontent.com/206425529/483777678-28068c83-9be5-44ad-a558-59238e9d27c2.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjA3MTYyMjgsIm5iZiI6MTc2MDcxNTkyOCwicGF0aCI6Ii8yMDY0MjU1MjkvNDgzNzc3Njc4LTI4MDY4YzgzLTliZTUtNDRhZC1hNTU4LTU5MjM4ZTlkMjdjMi5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMDE3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTAxN1QxNTQ1MjhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0xMGNhYjQzOGRlMDY0MDBjMTI5NmEwMzMyYmZjYzdhOWVmNjE2NTNiMGZmMmFkZDZlM2Q1YjAyMDY3NmJlNmE0JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.kumv-fDoEEUZfmTCuVJ8zBLwidA6jiUVWAoGJo6_v00) ![](https://private-user-images.githubusercontent.com/206425529/483850784-e5e69714-5639-47fe-93df-2243b2d1fcc5.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjA3MTYyMjgsIm5iZiI6MTc2MDcxNTkyOCwicGF0aCI6Ii8yMDY0MjU1MjkvNDgzODUwNzg0LWU1ZTY5NzE0LTU2MzktNDdmZS05M2RmLTIyNDNiMmQxZmNjNS5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzSUyRjIwMjUxMDE3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTAxN1QxNTQ1MjhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0wOTg1YzFiNmU2N2UzOTFkMDJmOTliYTcyYWZiOTRhMWI1ZGNkZDg3MTRkMjNjYjgxODg3NTVhNzE1YWVlYjJjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.izl9MBYewuJ2pKc0t9EUKinKhscEY0dVqyeCJtivbRg) ![](https://camo.githubusercontent.com/9f6e8b29326e0de480cf7759c89117a2cd434a819fce705cb4ebde10dc92d555/68747470733a2f2f692e706f7374696d672e63632f78643537387448342f76696c6c616e696f75732e676966) <img src="https://private-user-images.githubusercontent.com/228178109/501618492-6c45731a-ab0c-42da-a9aa-1fcd7e834db7.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjA3MTc4NzQsIm5iZiI6MTc2MDcxNzU3NCwicGF0aCI6Ii8yMjgxNzgxMDkvNTAxNjE4NDkyLTZjNDU3MzFhLWFiMGMtNDJkYS1hOWFhLTFmY2Q3ZTgzNGRiNy5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMDE3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTAxN1QxNjEyNTRaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jNjU1OGQ0NTQwNmRiYTcxY2FlNzJlNWQwNDk0NzUwOTRjM2JkZmJmOWE4Mzk0ZTU0Y2ZiYTExOTZiNzgwZmUwJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.vkseCoRptKkF12r1uxx2JeMaTPjMLlq4bnq0yUUdhVE" style="width:100px;"/> <img src="https://private-user-images.githubusercontent.com/228178109/501616743-65ebf057-8cca-48e3-8274-8b32621ac01b.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjA3MTc4NzQsIm5iZiI6MTc2MDcxNzU3NCwicGF0aCI6Ii8yMjgxNzgxMDkvNTAxNjE2NzQzLTY1ZWJmMDU3LThjY2EtNDhlMy04Mjc0LThiMzI2MjFhYzAxYi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMDE3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTAxN1QxNjEyNTRaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1hMWM5NTM0ZjA5YjIyNzA3YTI5ZjQwYTg4NWNhYWYzNGUzZDI4MTk0NDVlODQ0NGFjYWU5MzFkNzhiYmM2YzA1JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.ms1HICGLxEA0OYL6DeS_2WlOBW7ZK0DsM2YPlQN4vvY" style="width:100px;"/> <img src="https://blinkies.cafe/b/display/0134-fluttershy.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/display/0123-glitterpink.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/display/0278-galpals.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/blinkiesCafe-JU.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/blinkiesCafe-s8.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/blinkiesCafe-UH.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/blinkiesCafe-xR.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/blinkiesCafe-wF.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/blinkiesCafe-F0.gif" style="width:200px;"/> <img src="https://blinkies.cafe/b/blinkiesCafe-Mm.gif" style="width:200px;"/>
-
-
+<p align="center"> madoka themed readme in the wip!! 
