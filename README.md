@@ -7,3 +7,12 @@
 
 ## <p align="center">  𝑀𝑎𝑑𝑜𝑘𝑎 𝐾𝑎𝑛𝑎𝑚𝑒  <img src="https://media.tenor.com/B3uqC9kIDXMAAAAi/cute-shine.gif" width="55" alt="cute shine gif">
 <p align="center" > Could you guess?, im literally a madoka ftk!! </p>
+
+<p align="center" >Call me madoka/nyaamii, i am 6(teen) with 𝑩𝑷𝑫 and 𝑶𝑪𝑫 ⋆.˚</p> 
+
+
+Any questions? Visit [here!](p1nkpunk.straw.page)
+
+
+⋆.˚ This is so obviously a wip, more soon xoxo
+
