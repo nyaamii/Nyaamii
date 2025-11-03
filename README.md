@@ -27,14 +27,14 @@
  
 
 <p align="center"> Dandy's world <img src="https://media.tenor.com/r9XxTiwPcLQAAAAj/dandy-world-roblox.gif" width="50" </p>
-<p align="center"> Under tale <img src="https://media.tenor.com/wjpwB5zggAMAAAAj/sans.gif" width="35"</p>
-<p align="center"> Cardcaptor Sakura <img src="https://media.tenor.com/UfxSjrxEtxIAAAAj/sakura-chasseuse-de-cartes.gif" width="45"</p>
-<p align="center"> Madoka Magica <img src="" width=""</p>
+<p align="center"> Undertale <img src="https://media.tenor.com/wjpwB5zggAMAAAAj/sans.gif" width="35"</p>
+<p align="center"> Cardcaptor Sakura <img src="https://media.tenor.com/UfxSjrxEtxIAAAAj/sakura-chasseuse-de-cartes.gif" width="25"</p>
+<p align="center"> Madoka Magica <img src="https://media.tenor.com/6VYAPoucITIAAAAj/pmmm-puella-magi-madoka-magica.gif" width="25"</p>
 <p align="center"> My melody & Kuromi (peak!!) <img src="https://media.tenor.com/duOrgN8vDYEAAAAj/thinking-my-melody.gif" width="45"</p>
 <p align="center"> MHA <img src="https://media.tenor.com/mSev42tRsYcAAAAj/shoto-todoroki-shoto.gif" width="25"</p>
-<p align="center"> Dangonranpa </p>
-<p align="center"> Crk </p>
+<p align="center"> Dangonranpa <img src="https://media.tenor.com/GJ5qiYQS8hYAAAAj/naegi-makoto.gif" width="25"</p>
+<p align="center"> Crk <img src="https://media.tenor.com/4W99ULYRREkAAAAj/milkywaycookie-cookierunkingdom.gif" width="25"</p>
 <p align="center"> Octonauts <img src="https://media.tenor.com/m25j0xGApF0AAAAj/hello.gif" width="25" </p>
 <p align="center"> Mlp! <img src="https://media.tenor.com/BEQAsbiFQkYAAAAj/silly-mlp.gif" width="25" </p> 
 
-## 🌸 int w me psls
+## <p align="center" >🌸 int or c+h  w me psls</p>
