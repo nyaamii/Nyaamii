@@ -26,15 +26,15 @@
 ## <p align="center"> [![Typing SVG](https://readme-typing-svg.demolab.com?size=30&duration=2500&color=FF69B4&center=true&vCenter=true&lines=Fandoms!)](https://git.io/typing-svg)
  
 
-<p align="center"> Dandy's world, 
-Under tale, 
-Cardcaptor Sakura, 
-Madoka Magica, 
-My melody & Kuromi, 
-MHA, 
-Dangonranpa, 
-Crk, 
-Octonauts, 
-Mlp! 
+<p align="center"> Dandy's world </p>
+<p align="center"> Under tale </p>
+<p align="center"> Cardcaptor Sakura </p>
+<p align="center"> Madoka Magica </p>
+<p align="center"> My melody & Kuromi </p>
+<p align="center"> MHA </p>
+<p align="center"> Dangonranpa </p>
+<p align="center"> Crk </p>
+<p align="center"> Octonauts </p>
+<p align="center"> Mlp! </p>
 
 ## 🌸 int w me psls
