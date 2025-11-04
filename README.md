@@ -19,7 +19,7 @@
 
 
   
-<p align="center">Any questions? Visit click this!! (https://p1nkpunk.straw.page)
+<p align="center">Any questions? / or send me gimmcks, click this!! (https://p1nkpunk.straw.page)
 
 
 
