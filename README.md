@@ -8,7 +8,7 @@
 ## <p align="center">  𝑀𝑎𝑑𝑜𝑘𝑎 𝐾𝑎𝑛𝑎𝑚𝑒  <img src="https://media.tenor.com/B3uqC9kIDXMAAAAi/cute-shine.gif" width="55" alt="cute shine gif">
 <p align="center" > Could you guess?, im literally a madoka ftk!! ᵎᵎ</p>
 
-<p align="center" >Call me madoka/nyaamii, i am 6(teen) with 𝑩𝑷𝑫 and 𝑶𝑪𝑫,  in all those chaos, it includes gasps!! JEALOUSY ISSUESS AAGHH⋆.˚</p> 
+<p align="center" >Call me madoka/nyaamii, i am 6(teen) with 𝑩𝑷𝑫 and 𝑶𝑪𝑫,  in all those chaos, it includes gasps!! JEALOUSY ISSUESS AAGHH, also i kin clover frm II but i do not watch the show oke . ⋆.˚</p> 
 
 
 <p align="center"> 𓂃 i also tend to age-regress or pet-regress when stresses, so if you get umcomfy proceed to dni when there's (https://github.com/agefez) linked. .ᐟ
