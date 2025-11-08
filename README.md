@@ -18,6 +18,8 @@
 
 
 
+<p align="center" > also a 𝒲ednesday ftk! 🕸️ 𝒯ove y bby 𝓜𝓲𝓶𝓲!! </p>
+
   
 <p align="center">Any questions? / or send me gimmcks, click this!! (https://p1nkpunk.straw.page) ⟡
 
