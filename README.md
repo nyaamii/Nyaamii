@@ -9,4 +9,4 @@
 
 <p align="center"> 6𝑡𝑒𝑒𝑛 with 𝑩pd + 𝑶cd 
 
-<p align="center"> dra on my 𝑆𝑡𝑟𝑎𝑤𝑃𝑎𝑔𝑒 (p1nkpunk.straw.page) ✶
+<p align="center"> dra on my 𝑆𝑡𝑟𝑎𝑤𝑃𝑎𝑔𝑒 will respond!!
