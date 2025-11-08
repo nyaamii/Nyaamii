@@ -1,11 +1,11 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/414afe1b9681b35eaa65524888478d4a/b90da48508c4d1e6-23/s1280x1920/2b277d16b175a7a88cad2fb03ab031a97eb22308.gifv" width="1000" />
+  <img src="https://64.media.tumblr.com/d3be71600def5854f5d700f2c5bec5b9/b28c94218969a43d-1a/s540x810/8ee2b5651c497862a034873ebfee61a8b964ec78.gifv" width="700" />
 
 
-> <p align="Center"> " 𝑻𝒉𝒐𝒓𝒏 𝑷𝒓𝒊𝒏𝒄𝒆𝒔𝒔 "
+> <p align="Center"> " 𝑭𝒓𝒖𝒊𝒕𝒄𝒂𝒌𝒆 ♡ "
 
 
-<p align="center"> 𝒀or / 𝑀adoka  .  𝒕aken ♥︎
+<p align="center"> 𝓒osmo / 𝓜adoka  .  𝓣aken ♥︎
 
 <p align="center"> 6𝑡𝑒𝑒𝑛 with 𝑩pd + 𝑶cd 
 
