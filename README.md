@@ -1,42 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/59c49948971923b6bf0ddec1122a253d/7563c205d7619f44-2f/s400x600/5bd5bc0a932b0fef5e17999378d9b38ca9a3db95.gifv" alt="GIF description" />
-<img src="https://files.catbox.moe/wikcwm.webp" alt="Divider" width="900"/>
+  <img src="https://64.media.tumblr.com/4d842cf002538b2a395ef42a47323064/f914bda45b73bcf3-c5/s640x960/0e5bd235077c63c3629da7b4db0379ae0c70841f.gifv#left3db95.gifv" alt="GIF description" />
 
 
-> *"hope exists, because we try."*  
-
-## <p align="center">  𝑀𝑎𝑑𝑜𝑘𝑎 𝐾𝑎𝑛𝑎𝑚𝑒  <img src="https://media.tenor.com/B3uqC9kIDXMAAAAi/cute-shine.gif" width="55" alt="cute shine gif">
-<p align="center" > Could you guess?, im literally a madoka ftk!! ᵎᵎ</p>
-
-<p align="center" >Call me madoka/nyaamii, i am 6(teen) with 𝑩𝑷𝑫 and 𝑶𝑪𝑫,  in all those chaos, it includes gasps!! JEALOUSY ISSUESS AAGHH, also i kin clover frm II but i do not watch the show oke . ⋆.˚</p> 
-
-
-<p align="center"> 𓂃 i also tend to age-regress or pet-regress when stresses, so if you get umcomfy proceed to dni when there's (https://github.com/agefez) linked. .ᐟ
-
-
-<p align="center"> ◟ anyways, Im socially awkward but if you get to know me I'm cool guys I swear!! Feel free to always C+H or W2I for anything! ꕀ
-
-
-
-<p align="center" > also a 𝒲ednesday ftk! 🕸️ 𝒯ove y bby 𝓜𝓲𝓶𝓲!! </p>
-
-  
-<p align="center">Any questions? / or send me gimmcks, click this!! (https://p1nkpunk.straw.page) ⟡
-
-
-
-## <p align="center"> [![Typing SVG](https://readme-typing-svg.demolab.com?size=30&duration=2500&color=FF69B4&center=true&vCenter=true&lines=Fandoms!)](https://git.io/typing-svg)
- 
-
-<p align="center"> Dandy's world <img src="https://media.tenor.com/r9XxTiwPcLQAAAAj/dandy-world-roblox.gif" width="50" </p>
-<p align="center"> Undertale <img src="https://media.tenor.com/wjpwB5zggAMAAAAj/sans.gif" width="35"</p>
-<p align="center"> Cardcaptor Sakura <img src="https://media.tenor.com/UfxSjrxEtxIAAAAj/sakura-chasseuse-de-cartes.gif" width="25"</p>
-<p align="center"> Madoka Magica <img src="https://media.tenor.com/6VYAPoucITIAAAAj/pmmm-puella-magi-madoka-magica.gif" width="25"</p>
-<p align="center"> My melody & Kuromi (𝘗𝘌𝘈𝘒) <img src="https://media.tenor.com/duOrgN8vDYEAAAAj/thinking-my-melody.gif" width="45"</p>
-<p align="center"> MHA <img src="https://media.tenor.com/mSev42tRsYcAAAAj/shoto-todoroki-shoto.gif" width="25"</p>
-<p align="center"> Dangonranpa <img src="https://media.tenor.com/GJ5qiYQS8hYAAAAj/naegi-makoto.gif" width="25"</p>
-<p align="center"> Crk <img src="https://media.tenor.com/4W99ULYRREkAAAAj/milkywaycookie-cookierunkingdom.gif" width="25"</p>
-<p align="center"> Octonauts <img src="https://media.tenor.com/m25j0xGApF0AAAAj/hello.gif" width="25" </p>
-<p align="center"> Mlp! <img src="https://media.tenor.com/BEQAsbiFQkYAAAAj/silly-mlp.gif" width="25" </p> 
-
-## <p align="center" >🌸 int or c+h  w me psls</p>
+## <p align="Center"> New Kangel readme in the making ok . Kangel is to fill inᕙ(  •̀ ᗜ •́  )ᕗ
