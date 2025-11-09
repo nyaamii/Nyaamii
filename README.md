@@ -12,3 +12,5 @@
 <p align="center"> i tend to 𝑨𝑮𝑬𝑹𝑬𝑮𝑹𝑬𝑺𝑺 when stressed & etc. 
 
 <p align="center"> dra on my 𝑆𝑡𝑟𝑎𝑤𝑃𝑎𝑔𝑒 will respond!!
+
+> <p align="center">  meant to see in dark mode ! 
