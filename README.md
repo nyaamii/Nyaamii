@@ -5,7 +5,7 @@
 > <p align="Center"> " 𝑭𝒓𝒖𝒊𝒕𝒄𝒂𝒌𝒆 ♡ "
 
 
-<p align="center"> 𝓒osmo / 𝓜adoka  .  𝓣aken ♥︎
+<p align="center"> 𝓒osmo / 𝓜adoka  ftk .  𝓣aken ♥︎
 
 <p align="center"> 6𝑡𝑒𝑒𝑛 with 𝑩pd + 𝑶cd 
 
