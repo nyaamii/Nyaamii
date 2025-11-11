@@ -13,4 +13,24 @@
 
 <p align="center"> dra on my 𝑆𝑡𝑟𝑎𝑤𝑃𝑎𝑔𝑒 will respond!!
 
-> <p align="center">  meant to see in dark mode ! 
+
+<p align="center" ><img src="https://files.catbox.moe/9wjsys.png" width="800"</p>
+
+> <p align="center"> "oh why not 𝑚𝑒?"
+
+⠀⠀⠀⠀⠀⠀⠀⠀ 
+<p align="center"> more info because i said SO !!
+⠀⠀⠀⠀⠀
+
+<p align="center"> i have no 𝑝reffered pronouns,i dont care what 𝑝ronouns you use,
+<p align="center">but i do prefer if the pronouns are 𝓯eminine.
+
+⠀⠀⠀⠀⠀⠀⠀⠀ 
+<p align="center" ><img src="https://media1.tenor.com/m/M7wm19F8VVMAAAAd/blinkies-pride.gif" width="200"</p>
+
+⠀⠀⠀⠀⠀⠀⠀⠀ 
+<p align="center"> i am also simply 𝑎nti-ℎarrasment. I do not encourage 𝓭ark𝓼hipping,
+  <p align="center">but i 𝒅𝒐 believe you shouldn't 𝓱arras them
+
+⠀⠀⠀⠀⠀⠀⠀⠀ 
+<p align="center" ><img src="https://media.tenor.com/JTwWUHelxQMAAAAj/blinkies.gif" width="235"<img src="https://media.tenor.com/DqIjW53untgAAAAj/blinkies-kasane-teto.gif" width="235"><img src="https://media.tenor.com/EBbFdNshG_cAAAAj/blinkies-hatsune-miku.gif" width="235"></p>
