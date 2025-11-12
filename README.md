@@ -39,4 +39,4 @@
 <p align="center" ><img src="https://github.com/user-attachments/assets/c11a765a-1313-4f91-9b90-49b49972e832" width="350"</p>
 <p align="center" ><img src="https://github.com/user-attachments/assets/b2128b24-aa49-4548-931b-fc14a794a775" width="350"</p>
 
-> <p align="center"> " recently diagnosed  . altrs info wil b on straw  !!   "
+> <p align="center"> " recently diagnosed  . !!   "
