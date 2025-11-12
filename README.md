@@ -20,7 +20,7 @@
 > <p align="center"> "oh why not 𝑚𝑒?"
 
 ⠀⠀⠀⠀⠀⠀⠀⠀ 
-<p align="center"> more info because i said SO !!
+<p align="center"> more info because i said SO!!
 ⠀⠀⠀⠀⠀
 
 <p align="center"> i have no 𝑝reffered pronouns,i dont care what 𝑝ronouns you use,
@@ -48,7 +48,7 @@
   </p>
 
   <blockquote>
-    <p align="center">" recently diagnosed . !! "</p>
+    <p align="center">" recently diagnosed . !! sys sp doesnt include all altrs. "</p>
   </blockquote>
 
 </details>
