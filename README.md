@@ -1,3 +1,4 @@
+
 <p align="center">
   <img src="https://64.media.tumblr.com/d3be71600def5854f5d700f2c5bec5b9/b28c94218969a43d-1a/s540x810/8ee2b5651c497862a034873ebfee61a8b964ec78.gifv" width="700" />
 
@@ -34,3 +35,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀ 
 <p align="center" ><img src="https://media.tenor.com/JTwWUHelxQMAAAAj/blinkies.gif" width="235"<img src="https://media.tenor.com/DqIjW53untgAAAAj/blinkies-kasane-teto.gif" width="235"><img src="https://media.tenor.com/EBbFdNshG_cAAAAj/blinkies-hatsune-miku.gif" width="235"></p>
+
+<p align="center" ><img src="https://github.com/user-attachments/assets/c11a765a-1313-4f91-9b90-49b49972e832" width="350"</p>
+<p align="center" ><img src="https://github.com/user-attachments/assets/b2128b24-aa49-4548-931b-fc14a794a775" width="350"</p>
+
+> <p align="center"> " recently diagnosed  . altrs info wil b on straw  !!   "
