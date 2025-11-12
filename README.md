@@ -8,7 +8,7 @@
 
 <p align="center"> 𝓒osmo / 𝓜adoka  ftk . ♥︎
 
-<p align="center"> 6𝑡𝑒𝑒𝑛 with 𝑩pd + 𝑶cd 
+<p align="center"> 6𝑡𝑒𝑒𝑛 with 𝑩pd , 𝑶cd  + 𝑶sdd-1b
 
 <p align="center"> i tend to 𝑨𝑮𝑬𝑹𝑬𝑮𝑹𝑬𝑺𝑺 when stressed & etc. 
 
@@ -36,7 +36,19 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀ 
 <p align="center" ><img src="https://media.tenor.com/JTwWUHelxQMAAAAj/blinkies.gif" width="235"<img src="https://media.tenor.com/DqIjW53untgAAAAj/blinkies-kasane-teto.gif" width="235"><img src="https://media.tenor.com/EBbFdNshG_cAAAAj/blinkies-hatsune-miku.gif" width="235"></p>
 
-<p align="center" ><img src="https://github.com/user-attachments/assets/c11a765a-1313-4f91-9b90-49b49972e832" width="350"</p>
-<p align="center" ><img src="https://github.com/user-attachments/assets/b2128b24-aa49-4548-931b-fc14a794a775" width="350"</p>
+<details>
+  <summary>u can click thi</summary>
 
-> <p align="center"> " recently diagnosed  . !!   "
+  <p align="center">
+    <img src="https://github.com/user-attachments/assets/c11a765a-1313-4f91-9b90-49b49972e832" width="350">
+  </p>
+
+  <p align="center">
+    <img src="https://github.com/user-attachments/assets/b2128b24-aa49-4548-931b-fc14a794a775" width="350">
+  </p>
+
+  <blockquote>
+    <p align="center">" recently diagnosed . !! "</p>
+  </blockquote>
+
+</details>
