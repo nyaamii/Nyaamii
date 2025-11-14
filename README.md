@@ -51,6 +51,9 @@
 
 <p align="center" ><img src="https://github.com/user-attachments/assets/2d8cedeb-c883-42ed-8f9f-dd5ebf451edd" width="350"</p>
 
+![1000021994](https://github.com/user-attachments/assets/31629366-fe9e-4030-8147-d786d5ce411f)
+![1000021993](https://github.com/user-attachments/assets/da063e14-99da-499d-9805-b89b28a93a81)
+
 
   <blockquote>
     <p align="center">" recently diagnosed . !! sys sp doesnt include all altrs. "</p>
