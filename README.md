@@ -37,7 +37,7 @@
 <p align="center" ><img src="https://media.tenor.com/JTwWUHelxQMAAAAj/blinkies.gif" width="235"<img src="https://media.tenor.com/DqIjW53untgAAAAj/blinkies-kasane-teto.gif" width="235"><img src="https://media.tenor.com/EBbFdNshG_cAAAAj/blinkies-hatsune-miku.gif" width="235"></p>
 
 <details>
-  <summary>u can click thi</summary>
+  <summary>SYS userboxes !;</summary>
 
   <p align="center">
     <img src="https://github.com/user-attachments/assets/c11a765a-1313-4f91-9b90-49b49972e832" width="350">
@@ -53,6 +53,12 @@
 
 ![1000021994](https://github.com/user-attachments/assets/31629366-fe9e-4030-8147-d786d5ce411f)
 ![1000021993](https://github.com/user-attachments/assets/da063e14-99da-499d-9805-b89b28a93a81)
+![1000022075](https://github.com/user-attachments/assets/43a545ad-2811-4e85-bda8-81402fe36d23)
+![1000022074](https://github.com/user-attachments/assets/bfb255e9-2d02-4b6e-95d0-465d6adbcaeb)
+![1000022073](https://github.com/user-attachments/assets/9c6ac2ea-0a53-4234-b039-77437ea3f779)
+![1000022072](https://github.com/user-attachments/assets/cc32a7d5-d8a4-46b0-a0da-94f7db7dffee)
+![1000022071](https://github.com/user-attachments/assets/bc97c5cb-7db4-4294-a47a-4ef2e66abf71)
+![1000022070](https://github.com/user-attachments/assets/7b689092-104e-495b-8add-c08126f3d5a7)
 
 
   <blockquote>
