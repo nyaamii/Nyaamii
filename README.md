@@ -74,7 +74,9 @@
   ⠀⠀⠀⠀⠀⠀⠀  
   FA's :
 
-# <p align="center"> pytr-chan 
+# <p align="center"> pytr-chan <img src="https://media.tenor.com/W8RFkl1NGVsAAAAj/computer.gif" width="35">
+
+<p align="center"> pytr/pytrs , it/its strictly.
 
  <p align="center"> Unknown age-but is a 𝗺𝗶𝗻𝗼𝗿 (16?)
  
@@ -84,11 +86,24 @@
 
 <p align="center">has a typing quirk " h3ll0!"
 
-# <p align="center">lo / Misa
+# <p align="center">lo / Misa <img src="https://media1.tenor.com/m/dAS4ev9YXyQAAAAd/misa-amane.gif" width="35">
+
+<p align="center"> paw/pie , pup/pups, meow/mew , she/her
 
 <p align="center">15-16
 
 <p align="center">Guard ✧ will pop into front when host just doesnt wanna deal with shit!!
 
+
+# <p align="center"> Fawnie-Klo! <img src="https://media.tenor.com/bcQrnFFc6CYAAAAj/fawn-run-transparent.gif" width="35">
+
+<p align="center"> Fawn/fawn's, she/it
+
+<p align="center"> 14-16
+  
+<p align="center"> Comforter ✧ usually co-fronts and comforts the person/host who is upset or stressed! 
+
+<p align="center"> deer.
+  
 > sigh moree osoon....
 <detailsls>
