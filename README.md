@@ -67,3 +67,20 @@
   </blockquote>
 
 </details>
+
+
+<details>
+  <summary>Fictives+FA(full alters) basic info.</summary>
+  ⠀⠀⠀⠀⠀⠀⠀  
+  FA's :
+  pytr-chan 
+  Unknown age-but is a 𝗺𝗶𝗻𝗼𝗿
+  Confronter ✧ If host ever feels uncomfy about something or someone pytr will pop into front (without shame) confront them, because its pytr's job.
+  has a typing quirk " h3ll0!"
+
+  lo / Misa
+  15-16
+  Guard ✧ will pop into front when host just doesnt wanna deal with shit!!
+
+  ## guys im so lazy to do them..soon okey??...
+</details>
