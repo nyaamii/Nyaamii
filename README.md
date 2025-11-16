@@ -1,4 +1,4 @@
-
+<p align="center"> ${{\color{#3D2B2F}\Huge{\texttt{✧𝑠𝑦𝑠𝑡𝑒𝑚 𝑖𝑛𝑓𝑜 𝑏𝑒𝑙𝑜𝑤✧}}}}$ </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/d3be71600def5854f5d700f2c5bec5b9/b28c94218969a43d-1a/s540x810/8ee2b5651c497862a034873ebfee61a8b964ec78.gifv" width="700" />
 
