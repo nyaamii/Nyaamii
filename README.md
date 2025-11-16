@@ -76,7 +76,7 @@
 
 # <p align="center"> pytr-chan 
 
- <p align="center"> Unknown age-but is a 𝗺𝗶𝗻𝗼𝗿
+ <p align="center"> Unknown age-but is a 𝗺𝗶𝗻𝗼𝗿 (16?)
  
    
 <p align="center">Confronter ✧ If host ever feels uncomfy about something or someone pytr will pop into front (without shame) confront them, because its pytr's job.
