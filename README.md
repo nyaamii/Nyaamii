@@ -73,14 +73,22 @@
   <summary>Fictives+FA(full alters) basic info.</summary>
   ⠀⠀⠀⠀⠀⠀⠀  
   FA's :
-  pytr-chan 
-  Unknown age-but is a 𝗺𝗶𝗻𝗼𝗿
-  Confronter ✧ If host ever feels uncomfy about something or someone pytr will pop into front (without shame) confront them, because its pytr's job.
-  has a typing quirk " h3ll0!"
 
-  lo / Misa
-  15-16
-  Guard ✧ will pop into front when host just doesnt wanna deal with shit!!
+# <p align="center"> pytr-chan 
 
-  ## guys im so lazy to do them..soon okey??...
-</details>
+ <p align="center"> Unknown age-but is a 𝗺𝗶𝗻𝗼𝗿
+ 
+   
+<p align="center">Confronter ✧ If host ever feels uncomfy about something or someone pytr will pop into front (without shame) confront them, because its pytr's job.
+
+
+<p align="center">has a typing quirk " h3ll0!"
+
+# <p align="center">lo / Misa
+
+<p align="center">15-16
+
+<p align="center">Guard ✧ will pop into front when host just doesnt wanna deal with shit!!
+
+> sigh moree osoon....
+<detailsls>
