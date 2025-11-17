@@ -70,9 +70,8 @@
 
 
 <details>
-  <summary>Fictives+FA(full alters) basic info.</summary>
+  <summary>FAlters</summary>
   ⠀⠀⠀⠀⠀⠀⠀  
-  FA's :
 
 # <p align="center"> pytr-chan <img src="https://media.tenor.com/W8RFkl1NGVsAAAAj/computer.gif" width="35">
 
@@ -105,5 +104,5 @@
 
 <p align="center"> deer.
   
-> sigh moree osoon....
+> Fictives just act like the source their from <3
 <detailsls>
