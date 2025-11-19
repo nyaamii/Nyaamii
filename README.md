@@ -24,7 +24,7 @@
 ⠀⠀⠀⠀⠀
 
 <p align="center"> i have no 𝑝reffered pronouns,i dont care what 𝑝ronouns you use,
-<p align="center">but i do prefer if the pronouns are 𝑚asc.
+<p align="center">but i do prefer if the pronouns are 𝑓eminine.
 
 ⠀⠀⠀⠀⠀⠀⠀⠀ 
 <p align="center" ><img src="https://media1.tenor.com/m/M7wm19F8VVMAAAAd/blinkies-pride.gif" width="200"</p>
