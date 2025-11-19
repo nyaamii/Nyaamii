@@ -102,7 +102,9 @@
   
 <p align="center"> Comforter ✧ usually co-fronts and comforts the person/host who is upset or stressed! 
 
-<p align="center"> deer.
+<p align="center"> jealousy issues!!
+
+<p align="center"> fawn
   
 > Fictives just act like the source their from <3
 <detailsls>
